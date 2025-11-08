@@ -106,4 +106,5 @@ Approximate Cost $40USD ($55 Cdn)
 - Remove from Heat
 - Chop fresh green onions for garnish and **serve**
 
-Cool overnight, then freeze leftover servings and reheat/slowcook within 3 months!  Perfect snack a winter snow shovel, or ski day, or whenever you just feel rundown. 
+--- 
+🧊Cool overnight, then freeze leftover servings and reheat/slowcook within 3 months!  Perfect snack a winter snow shovel, or ski day, or whenever you just feel rundown. 
